@@ -1,2 +1,0 @@
-# supreme-bassoon
-ETH TRIAL
